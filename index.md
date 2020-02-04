@@ -1,2 +1,2 @@
-Welcome to Aishwarya MN Personal page, will be with details shortly!!
+Welcome to Aishwarya MN Personal web page, will be back with more information shortly!!
 
